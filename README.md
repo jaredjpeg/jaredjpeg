@@ -1,9 +1,5 @@
-
-<div align="center">
-
-
-https://github.com/user-attachments/assets/683ba1b0-9f3c-4610-9c19-b99d931fe9b0
-
-
-
-
+<div align="center"> ` i'm taking a ride with my best friend ` ♪</div>
+ㅤㅤㅤㅤ
+<div align="center"><img src="https://files.catbox.moe/c3i1lg.png" />
+ㅤㅤㅤㅤ
+<div align="center"> offtab a lot, w2i. i block/hide at my own discretion.
